@@ -1,2 +1,2 @@
 # testing-course
-vladimir je moj muz
+vladimir je moj puz. asdaksd
